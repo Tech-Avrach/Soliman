@@ -1,1 +1,1 @@
-# Soliman!
+# Soliman
